@@ -1,1 +1,1 @@
-# www.the-handymart.com
+# www.thehandymart.com
